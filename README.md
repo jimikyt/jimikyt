@@ -1,4 +1,4 @@
 - 👋 Hi, I’m JimikYT
-- 👀 I’m interested in streaming games
+- 👀 I’m interested in modyficked games
 - 🌱 I’m currently learning programing minecraft mods
 - 📫 How to reach me in e-mail jimikyoutube@o2.pl
